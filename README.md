@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @natsir-frgr
 - 👀 I’m interested in new things
-- 🌱 I’m currently learning many things
+- 🌱 I’m currently learning many new things
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
